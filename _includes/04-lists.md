@@ -1,0 +1,3 @@
+- mierda
+- excremento
+- caca
